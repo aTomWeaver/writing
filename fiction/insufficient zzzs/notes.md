@@ -1,0 +1,9 @@
+# Notes
+
+## Idea
+
+Bored banker, Eric, has found it nearly impossible to sleep lately. He is consulting a couple on their new joint account (playing them the Chase video) when a car smashes through the side of the building and a group of guys get out and head up to the front counter to rob them. A couple of guys head to the vestibule to try and disconnect the ATM. Eric walks over to them and asks to come along. They make their exit and speed down the highway, weaving in and out of traffic as he finally drifts off to sleep.
+
+He has always grown up as a straight-laced, good boy with a strong sense of justice in the world. Though he hates his job, he believes that it's a problem with himself and he still does it dutifully. One day a week ago, the IRS concluded their audit and found that he owed $400,000 in back taxes because his tax consultant had been making a clerical error on his taxes for years. He tried pointing this out to the IRS but there was little interest. Eric had also just purchased a house for himself in a decent suburb, and was partially paying for his sister Ellie's medical bills (her cancer is in remission). He still has $86k to his name in savings but will now have garnished wages for years to come. His savings will run out between his mortgage, bills, student loans, and sister's medical bills. He could soon lose the house.
+
+When the bank robbers come, they don't initially see him in his cubicle to the side. He has a rush of adrenaline and it bubbles to the surface. He sees a security officer who also has not been noticed yet hiding behind a corner, knight stick in hand. Eric finds himself making his way over to the officer. He pulls the stick from his hands and beats him across the head with it. The officer falls to the ground, passed out. He calls to the robbers that the safe is this way. He asks to go with them.
